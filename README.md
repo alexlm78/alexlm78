@@ -1,4 +1,4 @@
-### Hi there, I'm Alex - aka [Kreaker][website] 👋
+### Hi there, I'm Alex - aka [Kreaker](https://alexlm78.github.io) 👋
 
 ## I'm a Husband, Father, Developer, Reader and Learner
 - 🔭 I’m currently working on a lot of things!
