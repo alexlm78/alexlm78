@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
 - 🥅 Life Goals: Be the best I can be!!!
-- ⚡ Fun fact: If only you and dead people can read hex, how many people can red hex?
+- ⚡ Fun fact: If only you and dead people can read hex, how many people can read hex?
 
 ### Connect with me:
 
